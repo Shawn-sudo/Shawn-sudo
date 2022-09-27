@@ -7,3 +7,5 @@ Actually, my real name is Seihyun Lee.
 [My YouTube](https://www.youtube.com/channel/UCk6qk-1NLS4DUkhfeM-vNSA)
 
 [Get Atrable](https://get.atrable.com)
+
+I only have time to code on the weekend these days.
