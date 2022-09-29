@@ -8,4 +8,4 @@ My real name is Seihyun Lee.
 
 [Get Atrable](https://get.atrable.com)
 
-I only have time to code on the weekend these days.
+I can only code on weekends these days.
