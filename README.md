@@ -1,6 +1,6 @@
 I'm Shawn.
 ---
-Actually, my real name is Seihyun Lee.
+My real name is Seihyun Lee.
 
 [About Seihyun Lee](https://seihyun.atrable.com)
 
