@@ -2,10 +2,10 @@ I'm Shawn.
 ---
 My real name is Seihyun Lee.
 
-[About Me](https://seihyun.atrable.com)
+[About Me](https://seihyun.atrable.com) (seihyun.atrable.com)
 
-[My YouTube](https://www.youtube.com/channel/UCk6qk-1NLS4DUkhfeM-vNSA)
+[My YouTube](https://www.youtube.com/@seihyun) (@seihyun)
 
-[Get Atrable](https://www.atrable.com)
+[Atrable](https://www.atrable.com) (atrable.com)
 
 I can only code on weekends these days.
