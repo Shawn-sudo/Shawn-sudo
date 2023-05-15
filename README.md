@@ -6,6 +6,6 @@ My real name is Seihyun Lee.
 
 [My YouTube](https://www.youtube.com/@seihyun) (@seihyun)
 
-[Atrable](https://www.atrable.com) (atrable.com)
+[Buy me a coffee ☕️🤤](https://www.buymeacoffee.com/seihyun)
 
 I only code on weekends these days :/
