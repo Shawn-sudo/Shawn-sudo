@@ -6,6 +6,6 @@ My real name is Seihyun Lee.
 
 [My YouTube](https://www.youtube.com/@seihyun) (@seihyun)
 
-[Buy me a coffee ☕️🤤](https://www.buymeacoffee.com/seihyun)
+[Buy me a coffee ☕️🤤](https://ko-fi.com/seihyun)
 
 I only code on weekends these days :/
