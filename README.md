@@ -2,6 +2,10 @@ I'm Shawn.
 ---
 My real name is Seihyun Lee.
 
-[About Me](https://seihyun.atrable.com) (seihyun.atrable.com)
+[My Website](https://seihyun.atrable.com)
 
-[My YouTube](https://www.youtube.com/@seihyun) (@seihyun)
+[YouTube](https://www.youtube.com/@seihyun)
+
+[LinkedIn](https://www.linkedin.com/in/seihyun/)
+
+[Email](mailto:shawn@atrable.com)
